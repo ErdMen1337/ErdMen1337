@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ErdMen1337
-- 👀 I’m interested in Videogames or modding games, testing games
+- 👀 I’m interested in Videogames or install mods in games, testing games
 - 📫 How to reach me Discord ErdMen1337
 - 😄 Pronouns: he
 - ⚡ Fun fact: really quiet person but a chill dude
